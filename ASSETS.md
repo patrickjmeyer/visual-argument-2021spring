@@ -30,3 +30,4 @@ Repurposed:
 -Janelle Monae; by drake lelane from Creative Commons Search: https://search.creativecommons.org/photos/cfde5a70-5e69-4c73-ab0f-f3ef9a7d24f9 ; Creative Commons Attribution-NonCommercial 2.0 Generic License
 -World Aids Day Elton John; by Eva Rinaldi Celebrity Photographer from Creative Commons Search: https://search.creativecommons.org/photos/a6552971-d78e-45bd-8de0-995028f33066 ; Creative Commons Attribution-ShareAlike 2.0 Generic License
 -Kanye West @ MoMA; by Jason Persse from Creative Commons Search: https://search.creativecommons.org/photos/508360f5-500a-4309-9360-7371c46c39c9 ; Creative Commons Attribution-ShareAlike 2.0 Generic License
+-Blur-2; by maxmadesign.com from Creative Commons Search: https://search.creativecommons.org/photos/4176a6d3-dfbd-462a-85e8-fe150dfecad7 ; Creative Commons Attribution 2.0 Generic License
